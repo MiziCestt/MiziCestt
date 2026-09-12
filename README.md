@@ -42,8 +42,7 @@ My social Battery drains easily so I might just leave or won't talk to you thoug
 { Some hobbies of Mine/Favorite Games/Fandoms of mine }
 
 
-My Hobbies are, Painting, Drawing, Coloring, Writing, ETC - I personally like FNAF, Walten Files, Evade, Gacha, Alnst, Dead Plate, Let him go, BadThings, TFC, SIKATYD (Can't really remember all of it)
-
+My Hobbies are, Painting, Drawing, Coloring, Writing, ETC - I personally like FNAF, Walten Files, Evade, Gacha, Alnst, Dead Plate, Let him go, BadThings, TFC, SIKATYD, BadThings,  Minecraft,  Jujutsu Kaisen, Genshin Impact, Danganronpa, Madoka Magica, Dandy's World, CreepyPasta, DDLC, (Can't really remember all of it) 
 
 { My Socials }
 
