@@ -35,7 +35,7 @@ I normally hangout with my friends, out of the open, in the tree's, Beach, #2 sa
 
 Sometimes I would go silent, running away, or leaving without saying anything. I do all of this commonly(common)
 though I'm trying to get better at not trying to leave, run away, or going silent. My silence doesn't mean I'm mad, I dislike you or ignoring you. It's either I don't know what to say or probably don't want to talk anymore.
-My social Battery drains easily so I might just leave or won't talk to you though I'll tell you that I probably don't want to talk anymore i'm still trying to fix this habit of mine, so sorry if you experience this with me. Sorry.
+My social Battery drains easily so I might just leave or won't talk to you though I'll tell you that I probably don't want to talk anymore i'm still trying to fix this habit of mine, so sorry if you experience this with me. Sorry. Sometimes I will need to disappear and be by myself or with friends
 
 
 
@@ -43,6 +43,15 @@ My social Battery drains easily so I might just leave or won't talk to you thoug
 
 
 My Hobbies are, Painting, Drawing, Coloring, Writing, ETC - I personally like FNAF, Walten Files, Evade, Gacha, Alnst, Dead Plate, Let him go, BadThings, TFC, SIKATYD (Can't really remember all of it)
+
+
+{ My Socials(if this works. }
+
+
+[https://www.tiktok.com/@mixzicest](https://www.tiktok.com/@mixzicest)
+[(https://www.roblox.com/users/4677780833/profile)](https://www.roblox.com/users/4677780833/profile)
+[://www.pinterest.com/MizihttpsCest/_profile/](https://://www.pinterest.com/MizihttpsCest/_profile/)
+[https://open.spotify.com/user/31shvimuxq6ywic66fpvb4mr42dm](https://open.spotify.com/user/31shvimuxq6ywic66fpvb4mr42dm)
 
 
 
