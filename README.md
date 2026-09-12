@@ -12,7 +12,7 @@ I would rather be called Mizi or any nickname thats friendly like "Pookie, Twin 
 { Things to get my attention }
 
 
-You can try to W2I (Whisper to interact) to see if you can try to get me to interact with me
+You can try to W2I (Whisper to interact) to see if you can try to get me to interact with me because I'm normally making ponies, offtab or texting someone. If I don't answer. I'm sorry just don't try to tell at me for it.
  
 { Things I don't like }
 
