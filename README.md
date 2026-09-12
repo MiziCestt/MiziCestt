@@ -35,14 +35,17 @@ I normally hangout with my friends, out of the open, in the tree's, Beach, #2 sa
 
 Sometimes I would go silent, running away, or leaving without saying anything. I do all of this commonly(common)
 though I'm trying to get better at not trying to leave, run away, or going silent. My silence doesn't mean I'm mad, I dislike you or ignoring you. It's either I don't know what to say or probably don't want to talk anymore.
-My social Battery drains easily so I might just leave or won't talk to you though I'll tell you that I probably don't want to talk anymore i'm still trying to fix this habit of mine, so sorry if you experience this with me. Sorry. Sometimes I will need to disappear and be by myself or with friends
+My social Battery drains easily so I might just leave or won't talk to you though I'll tell you that I probably don't want to talk anymore I'm still trying to fix this habit of mine, so sorry if you experience this with me. Sorry. Sometimes I will need to disappear and be by myself or with friends, If any of this things make you Uncomfy/seem like I hate you. Simply DNI, Block me, Unfriend me or Ignore me.
 
 
 
 { Some hobbies of Mine/Favorite Games/Fandoms of mine }
 
 
+
 My Hobbies are, Painting, Drawing, Coloring, Writing, ETC - I personally like FNAF, Walten Files, Evade, Gacha, Alnst, Dead Plate, Let him go, BadThings, TFC, SIKATYD, BadThings,  Minecraft,  Jujutsu Kaisen, Genshin Impact, Danganronpa, Madoka Magica, Dandy's World, CreepyPasta, DDLC, (Can't really remember all of it) 
+
+
 
 { My Socials }
 
@@ -55,8 +58,4 @@ My Hobbies are, Painting, Drawing, Coloring, Writing, ETC - I personally like FN
 
 
 
-That's it for now
-
-
-
-Sigh my hands
+That's it for now. Sigh my hands
