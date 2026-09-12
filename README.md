@@ -26,7 +26,7 @@ I don't really like it when people come up to me and like nibble/bite or whateve
 
 
 
-I normally hangout with my friends, out of the open, in the tree's, Beach, #2 safe server/Safe Server or anywhere at this point.
+I normally hangout with my friends, out of the open, in the tree's, Beach, #2 safe server/Safe Server, Less croweded places, Or anywhere at this point.
 
 
 { My Social Battery, Silence, or leaving without saying anything }
