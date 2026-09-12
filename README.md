@@ -45,7 +45,7 @@ My social Battery drains easily so I might just leave or won't talk to you thoug
 My Hobbies are, Painting, Drawing, Coloring, Writing, ETC - I personally like FNAF, Walten Files, Evade, Gacha, Alnst, Dead Plate, Let him go, BadThings, TFC, SIKATYD (Can't really remember all of it)
 
 
-{ My Socials(if this works. }
+{ My Socials }
 
 
 [https://www.tiktok.com/@mixzicest](https://www.tiktok.com/@mixzicest)
