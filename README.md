@@ -55,6 +55,7 @@ My Hobbies are, Painting, Drawing, Coloring, Writing, ETC - I personally like FN
 [://www.pinterest.com/MizihttpsCest/_profile/](https://://www.pinterest.com/MizihttpsCest/_profile/)
 [https://open.spotify.com/user/31shvimuxq6ywic66fpvb4mr42dm](https://open.spotify.com/user/31shvimuxq6ywic66fpvb4mr42dm)
 [https://httpsmizicesttstrawpage.straw.pagehttps://httpsmizicesttstrawpage.straw.page](https://httpsmizicesttstrawpage.straw.page)
+[https://guns.lol/miziicestt](https://guns.lol/miziicestt)
 
 
 
